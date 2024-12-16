@@ -1,5 +1,5 @@
 ## Hi Hi!
-Im **Slateu/Ruby** IF your close with me. I go by She/Her Pronouns, Straight and im a very loyal _Christian_!! 
+Im **Slateu!! or Ruby** IF your close with me. I go by She/Her Pronouns, Straight and im a very loyal _Christian_!! 
 
 ### . . . . . ╰──╮
 
